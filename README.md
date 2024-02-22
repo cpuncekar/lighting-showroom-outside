@@ -19,3 +19,6 @@ this one hit!
 
 Best prompt so far
 Lighting store from the outside, with the text "Lighting Showroom". The weather is daytime. Frontal view, displaying Lighting products and furniture in windows. Ultra-realistic, mid-century modern style.
+
+
+Lighting store from the outside, with the text "Lighting Store". The weather is daytime. Frontal view, displaying Lighting products and furniture in windows. Ultra-realistic, mid-century modern style. 
