@@ -22,3 +22,7 @@ Lighting store from the outside, with the text "Lighting Showroom". The weather 
 
 
 Lighting store from the outside, with the text "Lighting Store". The weather is daytime. Frontal view, displaying Lighting products and furniture in windows. Ultra-realistic, mid-century modern style. 
+
+
+https://www.midjourney.com/jobs/910662b7-60b0-42bd-83d8-4f442013dda1
+https://www.midjourney.com/jobs/c04a862b-1819-4551-8cf1-33f4281ac774
