@@ -33,6 +33,8 @@ https://www.midjourney.com/jobs/c04a862b-1819-4551-8cf1-33f4281ac774
 Sales Person in home setting
 https://www.midjourney.com/jobs/d50ca1ca-2216-4da7-8c07-f7e4c207449e
 
+Sales Person in Lighting Showroom setting as the background
+https://www.midjourney.com/jobs/1bbc6486-59b9-49c2-b5b9-7f35f119664c
 https://www.midjourney.com/jobs/407afbf6-e5a2-470a-a2aa-3bbb62fe01a3
 https://www.midjourney.com/jobs/6bf52e16-f06a-47ce-ba04-e914078f7d01
 
