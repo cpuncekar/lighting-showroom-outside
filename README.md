@@ -1,4 +1,4 @@
-# lighting-showroom-outside
+# Lighting Showroom Outside
 Outside view or inside view of a lighting showroom
 
 
